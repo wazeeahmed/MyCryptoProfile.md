@@ -1,0 +1,1 @@
+Linking my account wazeeahmed on GitHub with my address 0x871c2ce31d92f411a9e3ae11e3e8d4cda2bde0f5 on EVM in mycryptoprofile.io, and the challenge code is: 60cbcd67d0d3e4486d084b8c5c551915. #LitentryVerifyMyAddress
